@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Yashu20025
-- 👀 I’m interested in ... disturbing others
-- 🌱 I’m currently pursuing BTech
+- 👀 I’m interested in disturbing others.
+- 🌱 I’m currently pursuing BTech.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
